@@ -1,0 +1,1 @@
+in this dataset, iwanna learn more about profits, specifically regariding the food delivery industry
